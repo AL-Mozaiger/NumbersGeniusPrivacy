@@ -1,6 +1,6 @@
-Privacy Policy for [Numbets Genius]
+Privacy Policy for [Numbers Genius]
 
-[Numbets Genius] respects the privacy of its users. This Privacy Policy explains how we collect, use, and disclose your personal information when you use our app.
+[Numbers Genius] respects the privacy of its users. This Privacy Policy explains how we collect, use, and disclose your personal information when you use our app.
 
 Information we collect
 We may collect the following information when you use our app:
